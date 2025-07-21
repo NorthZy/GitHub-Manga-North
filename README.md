@@ -1,4 +1,4 @@
-## Ep.4 The-soul-that-is-extinguished
+## Ep.6 The-soul-that-is-extinguished
 
 
 มิติสุดท้ายกำลังแตกเป็นเสี่ยง
